@@ -1,4 +1,4 @@
-# Fluxus Executor - Fluxus Executor Free - Fluxus Executor 2024Download Fluxus Executor for free in 2024.
+# Fluxus Executor - Fluxus Executor Free - Fluxus Executor 2024 Download Fluxus Executor for free in 2024.
 Enjoy seamless gaming experience with the latest version of Fluxus Executor, featuring enhanced performance and features.
 
 ![maxresdefault](https://github.com/user-attachments/assets/340639cb-8daf-4d1c-b56e-0bff4f0e1332)
